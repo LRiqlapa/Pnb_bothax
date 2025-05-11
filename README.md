@@ -1,2 +1,2 @@
 # Pnb_bothax
-Join my discord https://discord.com/invite/psdQaVEnHt
+have question? Join my discord https://discord.com/invite/psdQaVEnHt
